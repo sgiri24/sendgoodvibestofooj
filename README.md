@@ -1,4 +1,4 @@
-# Send Love to da Fooj 💖
+# Send Love to da Fooj 
 
 A quiet little walk through the mist to a shrine where a priest cat is collecting
 good vibes for Fooj's surgery day. Go to the shrine and pray! Send him good vibes!
